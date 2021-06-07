@@ -1,15 +1,9 @@
 # 个性化练习题目推荐系统
-[-2x9_21-](https://sherpahu.github.io/cfrs.github.io/#/user/u0)
-
 [-Faker](https://sherpahu.github.io/cfrs.github.io/#/user/u1)
-
-[.Isaunoya](https://sherpahu.github.io/cfrs.github.io/#/user/u2)
 
 [00001](https://sherpahu.github.io/cfrs.github.io/#/user/u3)
 
 [01191020csl](https://sherpahu.github.io/cfrs.github.io/#/user/u4)
-
-[04lrw](https://sherpahu.github.io/cfrs.github.io/#/user/u5)
 
 [0Mordecai0](https://sherpahu.github.io/cfrs.github.io/#/user/u6)
 
